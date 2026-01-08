@@ -1,16 +1,18 @@
-## Hi there 👋
+◡◡ 。Woah . . . read ❗🍓 .ᐟ.ᐟ ✦、
 
-<!--
-**WirelessNet-LAN/WirelessNet-LAN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Multifandom, and multishipper❗
+- Proshipper, doesnt include darkship❗
+- I like Strawberries 🍓 .
+- I think i remade this thousands times . . . 😔
+- Very friendly . . . So approach ❗
+- Dont follow your dreams, follow my tumblr❗/ Ref
+- if you go crazy, me too❗
+- OMG BRO WHERES THE GNB FANS IN PONY TOWN ⁉️
+- I miss docks 😿
+- Talk about your fandom with me❗
+- Dont steal my designs and colors please .
+- And dont copy my styleee. . . i dont want it to happen again ;(
+- FOLLOW MY TUMBL-
+- Okay sorry :3
+- Int pls
+- bai bai ❗🫂
