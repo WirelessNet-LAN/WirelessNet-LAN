@@ -20,4 +20,6 @@
 - And sometimes i can make you veeery cautious, do tell❗
 - if i make you uncomfortable in any way, please tell‼️‼️
 - when you share the same interest that ive been looking for, im thrilled, and excited 🥳❗
+- *Suddenly turns serious*
+- 
 - Please, if you have any problems, with your friends, family, economies or basically anything that has been bothering you in life, feel free to vent,i wont force you tho, just know this, i am a very good listener, i don't want to break your heart but ill try to be honest... be safe, friend, i hope you find a way to be happy.
