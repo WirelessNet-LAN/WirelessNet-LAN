@@ -1,7 +1,7 @@
 ◡◡ 。Woah . . . read ❗🍓 .ᐟ.ᐟ ✦、
 
 - Multifandom, and multishipper❗
-- Proshipper, doesnt include darkship❗
+- C+H freely, i can be awkward, or quiet, so bring a topic with you❗
 - I like Strawberries 🍓 .
 - I think i remade this thousands times . . . 😔
 - Very friendly . . . So approach ❗
@@ -15,4 +15,9 @@
 - FOLLOW MY TUMBL-
 - Okay sorry :3
 - Int pls
-- bai bai ❗🫂
+- Oh yeah, i do think my english is a lil bad... but i can tty perfectly with that❗
+- Sometimes i can trigger a nerve in you... so... please do tell...
+- And sometimes i can make you veeery cautious, do tell❗
+- if i make you uncomfortable in any way, please tell‼️‼️
+- when you share the same interest that ive been looking for, im thrilled, and excited 🥳❗
+- Please, if you have any problems, with your friends, family, economies or basically anything that has been bothering you in life, feel free to vent,i wont force you tho, just know this, i am a very good listener, i don't want to break your heart but ill try to be honest... be safe, friend, i hope you find a way to be happy.
